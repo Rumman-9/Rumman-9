@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Rumman-Khan
+- 👀 I’m interested in coding
+- 🌱 I’m currently learning coding
+- 📫 To reach me:- rummanjk9@gmail.com
